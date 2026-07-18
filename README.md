@@ -1,4 +1,4 @@
-<p align="center"><img width="400" src="https://github.com/user-attachments/assets/77b06510-21f4-42ef-9133-e469e10264fc"></p>
+<p align="center"><img width="400" src="https://github.com/user-attachments/assets/8171bb94-a06f-43c7-a0d7-b61ed11d8186"></p>
 ㅤ
 
 <div align="center">
@@ -27,4 +27,4 @@ irl　　sci ─ twi　　♡　#1　sciset　luvr
 </div>
 
 　
-<p align="center"><img width="350" src="https://github.com/user-attachments/assets/f480cb05-b4e3-4de5-a7f9-20150228f94b"></p>
+<p align="center"><img width="390" src="https://github.com/user-attachments/assets/f480cb05-b4e3-4de5-a7f9-20150228f94b"></p>
