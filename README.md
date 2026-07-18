@@ -3,7 +3,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=a9779b&label=+ㅤangels+ㅤ)
+![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=f7d9e0&label=+ㅤangels+ㅤ)
 
 </div>
 
