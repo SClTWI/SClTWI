@@ -1,9 +1,9 @@
-<p align="center"><img width="400" src="https://i.postimg.cc/1tWWHy6t/dduspbc_2422c667_7ba7_4fe0_b912_4d067f2d70a5.png"></p>
+<p align="center"><img width="400" src="https://github.com/user-attachments/assets/77b06510-21f4-42ef-9133-e469e10264fc"></p>
 ㅤ
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=ffc3f5&label=+ㅤbunnies+ㅤ)
+![](https://komarev.com/ghpvc/?username=princessing&abbreviated=true&color=ffdbef&label=+ㅤbunnies+ㅤ)
 
 </div>
 
@@ -14,26 +14,16 @@
   
 </div>
 
-ㅤ
-
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Mystery+Quest&duration=6000&pause=1000&color=FFFFFF&center=true&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4once%E3%85%A4%E3%85%A4upon%E3%85%A4%E3%85%A4a%E3%85%A4%E3%85%A4dream%E3%85%A4%E3%85%A4%EF%BD%A1+%EF%BD%A1%E3%85%A4%E3%85%A4%CB%9A+%E2%82%8A)](https://git.io/typing-svg)
+･ﾟꗯ　　tara　　or　　dreamy　　૮꒰ ⑅ ˊ ། ິ ` ꒱ა
+
+sweetest　　littl　　girl　　in　　da　　whole　　wide　　wrld
+
+irl　　tara　　carpenter　　♡
+
+[rentri](https://rentry.co/taracarpenter)　　⏔⏔⏔　꒰　᧔ෆ᧓　꒱　⏔⏔⏔　　[ext](https://rentry.co/dreamflasher)
 
 </div>
 
-<img src="https://github.com/user-attachments/assets/4790f61e-4a54-4593-99e1-8b5477bb5bd1" width="370" align="left">
-
-<table>
-<br>
-    <tr>
-      <td>
-        <br>
-     <p align="center"><img width="20" <img src="https://i.postimg.cc/pTJqfcj5/tumblr-7d84e5054c85a1c3a35d23d8aa5a639f-3986d039-250.gif">    ׄ    𓈒    ⏜ㅤㅤsleepiestㅤㅤ littlㅤㅤprincessㅤㅤ♡ ꒰ˆ◞⸝⸝◟ˆ ꒱੭ﾞ.</p>
-        <p align="center">꒰ㅤㅤtaraㅤㅤcarpenterㅤㅤcopingㅤㅤlinkㅤㅤ/ㅤㅤfictkinㅤㅤ꒱</p>
-<p align="center">໒꒱ㅤㅤshyestㅤㅤbunnieㅤㅤ. .ㅤㅤplsㅤㅤbㅤㅤkindㅤㅤ!</p>
-        <br>
-      </td>
-    </tr>
-    </table>
-
+<p align="center"><img width="350" src="https://github.com/user-attachments/assets/664b3911-9836-4340-b8a7-6dd8bc2e389e"></p>
