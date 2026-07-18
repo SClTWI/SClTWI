@@ -18,12 +18,13 @@
 
 ･ﾟꗯ　　tara　　or　　twi　　૮꒰ ⑅ ˊ ། ິ ` ꒱ა
 
-infp　　5w6　　mel - phleg　　.　　perma　　agere
+infp　　5w6　　mel ─ phleg　　‧₊˚　　perma ─ agere
 
-irl　　sci　　twi　　♡
+irl　　sci ─ twi　　♡　#1　sciset　luvr
 
 [rentri](https://rentry.co/ponytails)　　⏔⏔⏔　꒰　᧔ෆ᧓　꒱　⏔⏔⏔　　[ext](https://rentry.co/howtolie)
 
 </div>
 
+　
 <p align="center"><img width="350" src="https://github.com/user-attachments/assets/f480cb05-b4e3-4de5-a7f9-20150228f94b"></p>
