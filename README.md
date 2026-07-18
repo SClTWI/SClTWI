@@ -16,14 +16,14 @@
 
 <div align="center">
 
-･ﾟꗯ　　tara　　or　　dreamy　　૮꒰ ⑅ ˊ ། ິ ` ꒱ა
+･ﾟꗯ　　tara　　or　　twi　　૮꒰ ⑅ ˊ ། ິ ` ꒱ა
 
-sweetest　　littl　　girl　　in　　da　　whole　　wide　　wrld
+infp　　5w6　　mel - phleg　　.　　perma　　agere
 
-irl　　tara　　carpenter　　♡
+irl　　sci　　twi　　♡
 
-[rentri](https://rentry.co/taracarpenter)　　⏔⏔⏔　꒰　᧔ෆ᧓　꒱　⏔⏔⏔　　[ext](https://rentry.co/dreamflasher)
+[rentri](https://rentry.co/ponytails)　　⏔⏔⏔　꒰　᧔ෆ᧓　꒱　⏔⏔⏔　　[ext](https://rentry.co/howtolie)
 
 </div>
 
-<p align="center"><img width="350" src="https://github.com/user-attachments/assets/664b3911-9836-4340-b8a7-6dd8bc2e389e"></p>
+<p align="center"><img width="350" src="https://github.com/user-attachments/assets/f480cb05-b4e3-4de5-a7f9-20150228f94b"></p>
