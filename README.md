@@ -16,12 +16,6 @@
 
 <div align="center">
 
-･ﾟꗯ　　tara　　or　　twi　　૮꒰ ⑅ ˊ ། ິ ` ꒱ა
-
-infp　　5w6　　mel ─ phleg　　‧₊˚　　perma ─ agere
-
-irl　　sci ─ twi　　♡　#1　sciset　luvr
-
 [rentri](https://rentry.co/ponytails)　　⏔⏔⏔　꒰　᧔ෆ᧓　꒱　⏔⏔⏔　　[ext](https://rentry.co/howtolie)
 
 </div>
