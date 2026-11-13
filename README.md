@@ -24,7 +24,7 @@
 <p align="center"><img width="390" src="https://github.com/user-attachments/assets/f480cb05-b4e3-4de5-a7f9-20150228f94b"></p>
 
 
-<img src="https://github.com/user-attachments/assets/d959da5a-e3dd-4c71-b4ec-5fa9b630af90" alt="description" width="300">
+<img src="https://file.garden/aRY3l6C0BHrrKtiZ/Untitled125_2026111223064.png?v=1794551473000" alt="description" width="300">
 
 
 
