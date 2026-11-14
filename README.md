@@ -37,6 +37,11 @@
 <p>jane　　remover　　oshi　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_8180.gif?v=1794550782135" width="32"/>　　6　𓈒　13<p/>
 <p>sign　　my　　atabook　　pretti　　pawlease<p/>
 <p><img src="https://file.garden/aRY3l6C0BHrrKtiZ/Untitled125_2026111223065.png?v=1794551569981" alt="description" width="300"><p/>
-<p> [rentri](https://rentry.co/ponytails)　　᧔ෆ᧓　　[ext](https://rentry.co/howtolie)<p/></td>
+    
+<div align="center">
+
+[rentri](https://rentry.co/ponytails)　　⏔⏔⏔　꒰　᧔ෆ᧓　꒱　⏔⏔⏔　　[ext](https://rentry.co/howtolie)
+
+</div></td>
   </tr>
 </table>
