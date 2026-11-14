@@ -40,7 +40,7 @@
     
 <div align="center">
 
-[rentri](https://rentry.co/ponytails)　　⏔⏔⏔　꒰　᧔ෆ᧓　꒱　⏔⏔⏔　　[ext](https://rentry.co/howtolie)
+[<b>atabook<b/>](http://taracarpenter.atabook.org/)　　⏔⏔⏔　꒰　᧔ෆ᧓　꒱　⏔⏔⏔　　[<b>extended<b/>](https://rentry.co/onceuponadream)
 
 </div></td>
   </tr>
