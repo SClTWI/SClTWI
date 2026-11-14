@@ -32,9 +32,9 @@
 <table>
   <tr>
     <td><p><img src="https://file.garden/aRY3l6C0BHrrKtiZ/Untitled125_2026111223064.png?v=1794551473000" alt="description" width="300"><p/>
-<p>𓐇 ͡ . ֹ 　　tara　　ᵒʳ　　princess　　૮꒰ྀི´ ˘ `ʃƪ꒱ྀིა　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_8180.gif?v=1794550782135" width="32"/><p/>
+<p>𓐇 ͡ . ֹ 　　tara　　ᵒʳ　　princess　　૮꒰ྀི´ ˘ `ʃƪ꒱ྀིა<p/>
 <p>shy　　♡　　sew　　𓏼 ̣̣ :　　aroace　　girlthing<p/>
-<p>jane　　remover　　oshi　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_6268.gif?v=1794550873556" width="32">　　6　𓈒　13　𓈒　26<p/>
+<p>jane　　remover　　oshi　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_8180.gif?v=1794550782135" width="32"/>　　6　𓈒　13　𓈒　26<p/>
 <p>sign　　my　　atabook　　𓈒 𓈒　　pawlease　　?<p/>
 <p><img src="https://file.garden/aRY3l6C0BHrrKtiZ/Untitled125_2026111223065.png?v=1794551569981" alt="description" width="300"><p/></td>
   </tr>
