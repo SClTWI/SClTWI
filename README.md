@@ -36,6 +36,6 @@
 <p>shy　　♡　　sew　　𓏼 ̣̣ :　　aroace　　girlthing<p/>
 <p>jane　　remover　　oshi　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_6268.gif?v=1794550873556" width="32">　　6　𓈒　13　𓈒　26<p/>
 <p>sign　　my　　atabook　　𓈒 𓈒　　pawlease　　?<p/>
-<p>![](https://file.garden/aRY3l6C0BHrrKtiZ/Untitled125_2026111223065.png?v=1794550564112)<p/></td>
+<p><img src="https://file.garden/aRY3l6C0BHrrKtiZ/Untitled125_2026111223065.png?v=1794551569981" alt="description" width="300"><p/></td>
   </tr>
 </table>
