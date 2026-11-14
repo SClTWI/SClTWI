@@ -35,7 +35,7 @@
 <p>𓐇 ͡ . ֹ 　　tara　　ᵒʳ　　princess　　૮꒰ྀི´ ˘ `ʃƪ꒱ྀིა<p/>
 <p>shy　　♡　　sew　　𓏼 ̣̣ :　　aroace　　girlthing<p/>
 <p>jane　　remover　　oshi　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_8180.gif?v=1794550782135" width="32"/>　　6　𓈒　13<p/>
-<p>sign　　my　　atabook　　𓈒 𓈒　　pawlease　　?<p/>
+<p>sign　　my　　atabook　　pretti　　please　　?<p/>
 <p><img src="https://file.garden/aRY3l6C0BHrrKtiZ/Untitled125_2026111223065.png?v=1794551569981" alt="description" width="300"><p/></td>
   </tr>
 </table>
